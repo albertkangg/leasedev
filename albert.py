@@ -1,0 +1,1 @@
+albert is a stupid f****** retard and he deserves death
